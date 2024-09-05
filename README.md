@@ -1,0 +1,1 @@
+# 3d-8-sinif-tc-inkilap-tarihi-ve-ataturkculuk-soru-bankasi-2025-32
